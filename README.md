@@ -1,5 +1,8 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/07/20
+today was so good day we sent a friend it's about to fly to UC Berkeley and met a lot of old friends, we could have a very meaningful and emotional time. Also after the party while my best friends cheered me up and push my box and then I can broke my shell. I couldn't have teared the show by myself. I cannot express too much thanks to him. We are really good team. We can do it. Let's go I hope to gather again with all the people who attended today until that just keep in health and spend their own way. Good luck.
+
 ### 2026/07/19
 Today also I was very productive. The one thing that is most impressive today was I met a guy who is doing business in satellite interstate communications and then I had a discussion with him and then I can dip my knowledge towards my research. Also satellite communications. I feel like I'm in the right field right now thank you very much.
 
