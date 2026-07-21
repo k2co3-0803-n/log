@@ -1,5 +1,8 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2926/07/21
+they are a potato we went to eat sushi and went to the café in Musashikosugi. I always have a very deep and meaningful discussion with him and thanks to him. I I can't understand myself well and have more higher level of vision. I mean, I can abstract and make it concrete of where I mean now so I feel like I finally find the the thing which have been stuck in my brain, but I feel very refreshing right now and feel like I found the new way to go.
+
 ### 2026/07/20
 today was so good day we sent a friend it's about to fly to UC Berkeley and met a lot of old friends, we could have a very meaningful and emotional time. Also after the party while my best friends cheered me up and push my box and then I can broke my shell. I couldn't have teared the show by myself. I cannot express too much thanks to him. We are really good team. We can do it. Let's go I hope to gather again with all the people who attended today until that just keep in health and spend their own way. Good luck.
 
