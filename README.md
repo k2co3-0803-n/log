@@ -1,6 +1,12 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
-### 2926/07/21
+### 2026/07/23
+I went to the previous dormitory and met old friends there. Confirm the connections with them again.
+
+### 2026/07/22
+I found a good way to stretch the back of my legs.
+
+### 2026/07/21
 Today I met Eitaro. We went to eat sushi and went to the café in Musashikosugi. I always have a very deep and meaningful discussion with him and thanks to him. I I can't understand myself well and have more higher level of vision. I mean, I can abstract and make it concrete of where I mean now so I feel like I finally find the the thing which have been stuck in my brain, but I feel very refreshing right now and feel like I found the new way to go.
 
 ### 2026/07/20
