@@ -1,5 +1,8 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/07/24
+Gonna climb Mt. Fuji tomorrow. Staying at a house at Kawaguchiko.
+
 ### 2026/07/23
 I went to the previous dormitory and met old friends there. Confirm the connections with them again.
 
