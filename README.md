@@ -45,7 +45,7 @@ Taught how to use CapCut to Kobayashi-Kun.
 Solo sightseeing at Kawaguchiko.
 
 ### 2026/07/25
-Climbed Mt. Fuji.
+Climbed Mt. Fuji. Was so hard. Hehlped a woman on the way while going down. Got a present from her later on 8/1.
 
 ### 2026/07/24
 Gonna climb Mt. Fuji tomorrow. Staying at a house at Kawaguchiko. Also, today was my mother's birthday. Thank you for everything.
