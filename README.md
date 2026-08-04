@@ -1,7 +1,54 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/08/03
+- My 24th birthday.
+- Participate AIC's lecture about Physical AI as TA.
+- Farewell & Birthday Party with GLS members.
+- Happy birthday dear Haruki and me.
+- Got fancy underpants as a present from Haruki.
+- Thank you always.
+
+### 2026/08/02
+- Participate AIC's lecture about Physical AI as TA.
+- Last hang out with Monica.
+- Watched Kiki's Delivery Service for the first time of a few years.
+- Got a notebook as a present from her.
+
+### 2026/08/01
+- Teeth whitening. So hurting.
+- Dinner with Nagamine-San & Talked about the Netherlands.
+- Hang out with Morgane at Daikanyama. Found a good bar at Nakameguro.
+
+### 2026/07/31
+- Farewell Teniss with Satoh Lab's members.
+- Final work day at AIC.
+- Farewell Party with AIC members.
+- Clubbing with Tasumi-Kun and Aiso-Kun at Atom Shibuya. (was so fun)
+
+### 2026/07/30
+- Reunion with Helen and the dorm members.
+
+### 2026/07/29
+- Say goodbye to Matuoka-San and Ate Sangyetang as the last lunch at Usagi.
+- Say goodbye to Prof. Satoh & applogize that I can't finish a journal paper.
+- Say goodbye to Reiko-San.
+- Final dinner with Yuki Shimizu at Ikinari Steak & Latte graphic. Bet on the battle which of us can make $60M first.
+- Thank you always. The steak was so delicious.
+
+### 2026/07/28
+Farewell Party with AIC DX Team.
+
+### 2026/07/27
+Taught how to use CapCut to Kobayashi-Kun.
+
+### 2026/07/26
+Solo sightseeing at Kawaguchiko.
+
+### 2026/07/25
+Climbed Mt. Fuji.
+
 ### 2026/07/24
-Gonna climb Mt. Fuji tomorrow. Staying at a house at Kawaguchiko.
+Gonna climb Mt. Fuji tomorrow. Staying at a house at Kawaguchiko. Also, today was my mother's birthday. Thank you for everything.
 
 ### 2026/07/23
 I went to the previous dormitory and met old friends there. Confirm the connections with them again.
