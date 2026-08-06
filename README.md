@@ -1,5 +1,11 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/08/05
+lay on the bed all day because of a sick. Got from throat cold from clubbing. Sh*t.
+
+### 2026/08/04
+Organized what to do for moving to the Netherlands.
+
 ### 2026/08/03
 - My 24th birthday.
 - Participate AIC's lecture about Physical AI as TA.
