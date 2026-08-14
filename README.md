@@ -1,6 +1,9 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
-### 
+### 2026/08/14
+Farewell Party with old friends from high school.
+I confirm that a strong will is the everything which make a difference.
+Here, I declare to everyone: 
 
 ### 2026/08/13
 Farewell Party with old friend from junior high school. Went to a restaurant, did fireworks, and sang at a snack bar.
