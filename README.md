@@ -1,10 +1,36 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 
+
+### 2026/08/13
+Farewell Party with old friend from junior high school. Went to a restaurant, did fireworks, and sang at a snack bar.
+
+### 2026/08/12
+Slept all day. I watched the Porco Rosso. So nice. Especially the theme music.
+
+### 2026/08/11
+Moved out to Nagano. Met my nieces at my sister's house and met my grand parents. My house's cats are so cute.
+
+### 2026/08/10
+Farewell party at Shibuya with Kagami-San, Retsu-Kun, Hitachi-Kun, and Aiso-kun. Big thanks for the time we spent together at Kagami's house.
+
+### 2026/08/09
+Hang out with Morgane at Enoshima again. Two days in a row at Enoshima.
+
+### 2026/08/08
+Surfing at Enoshima beach with Noro-San. Became friends with Kento and Nagisa. Nagisa was studying at the Netherlands coincidentally and gave me lots of information.
+
+### 2026/08/07
+Wrote lettes and say goodbye to Kobayashi-Sensei, Kohno-San, Kiyono-San, Ikawa-San, and Kokudo-San.
+
+### 2026/08/06
+Handed in notification of moving out to foreign countries to Kohoku-Ku ward office and handled the National Health Insurance and the National Pension Insurance.
+
 ### 2026/08/05
-lay on the bed all day because of a sick. Got from throat cold from clubbing. Sh*t.
+lay on the bed all day because of a sick. Got a throat cold from clubbing. Sh*t.
 
 ### 2026/08/04
-Organized what to do for moving to the Netherlands.
+Organized what to do for moving to the Netherlands. A ship to Ogasawara islands was cancelled because of typhoon 13. Sad.
 
 ### 2026/08/03
 - My 24th birthday.
