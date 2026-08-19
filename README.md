@@ -3,7 +3,7 @@
 ### 2026/08/18
 Arrived at TU Delt. Joined the IP Program with roommates and other friends. I don't know why but I don't feel any big emotional waves yet. 
 
-Everything is managable so far. English is no problem.
+Everything is managable so far. English is no problem. One thing I noticed was that dirty jokes by Western people are so direct at first time. Felt a little bit uncomfortable. 
 
 ### 2026/08/17
 Departure day. 
