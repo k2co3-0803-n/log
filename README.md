@@ -1,5 +1,19 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/08/18
+Arrived at TU Delt. Joined the IP Program with roommates and other friends. I don't know why but I don't feel any big emotional waves yet. 
+
+Everything is managable so far. English is no problem.
+
+### 2026/08/17
+Departure day. 
+
+### 2026/08/16
+Packed everything. Last dinner with my family. Talked with my relatives.
+
+### 2026/08/15
+Went to Karuizawa Outlet Mall with a friend from my high school. Bought new shoes and two perfumes.
+
 ### 2026/08/14
 Farewell Party with old friends from high school.
 I confirm that a strong will is the everything which make a difference.
