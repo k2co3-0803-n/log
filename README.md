@@ -1,9 +1,12 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
-### 2026/08/18
-Arrived at TU Delt. Joined the IP Program with roommates and other friends. I don't know why but I don't feel any big emotional waves yet. 
+### 2026/08/19
+Attended the Introduction Programme. The building called "X," where students can enjoy exercising, was amazing. Once you pay 170 euros per year, you can enjoy a ton of exercize programme and meet many new people. I plan to participate in tennis, yoga, and boxing, etc. Also, I succeeded in doing a street interview. I'm gonna make content with it.
 
-Everything is managable so far. English is no problem. One thing I noticed was that dirty jokes by Western people are so direct at first time. Felt a little bit uncomfortable. 
+### 2026/08/18
+Arrived at TU Delt. Joined the IP Program with roommates and other friends. I don't know why, but I don't feel any big emotional waves yet. 
+
+Everything is manageable so far. English is no problem. One thing I noticed was that dirty jokes by Western people are so direct from the beginning. Felt a little bit uncomfortable. 
 
 ### 2026/08/17
 Departure day. 
