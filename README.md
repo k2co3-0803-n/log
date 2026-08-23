@@ -1,5 +1,18 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/08/22
+I went to a library to prepare the interview for a scholarship. The design of the library is kind of unique. Its defining feature is the large sloping grass roof. The campus lawn rises gradually from the ground and continues over the library, so you can walk, sit, or study on top of the building.
+<img width="528" height="396" alt="image" src="https://github.com/user-attachments/assets/f14d87b2-5487-48ed-8cf8-39576923abb3" />
+
+At the night, we went to see a free jazz concert held at several points of the cify. That was really vibing with me.
+
+
+### 2026/08/21
+Today I went to buy a bicycle at secondhand stores with several friends. We took a look at two stores and I finally bought 180 euro bicycle, which is not actually cheap for secondhand. After that, we went to an IKEA to buy some furnitures. On the way back to home from the IKEA, I dropped a new glass bottle to a road that was slipped from my jacked pocket. I'm sorry for making the road dirty to Delft people. And I thank to the bottle for being part of my furniture just for 10 minutes.
+
+### 2026/08/20
+Attended the Introduction Programme. We walked around Delft so that we can know about the city. After the walking, there was the ending ceremony and party. Dancing with new colleagues was so fun.
+
 ### 2026/08/19
 Attended the Introduction Programme. The building called "X," where students can enjoy exercising, was amazing. Once you pay 170 euros per year, you can enjoy a ton of exercize programme and meet many new people. I plan to participate in tennis, yoga, and boxing, etc. Also, I succeeded in doing a street interview. I'm gonna make content with it.
 
