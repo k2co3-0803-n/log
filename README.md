@@ -2,6 +2,7 @@
 
 ### 2026/08/22
 I went to a library to prepare the interview for a scholarship. The design of the library is kind of unique. Its defining feature is the large sloping grass roof. The campus lawn rises gradually from the ground and continues over the library, so you can walk, sit, or study on top of the building.
+
 <img width="528" height="396" alt="image" src="https://github.com/user-attachments/assets/f14d87b2-5487-48ed-8cf8-39576923abb3" />
 
 At the night, we went to see a free jazz concert held at several points of the cify. That was really vibing with me.
