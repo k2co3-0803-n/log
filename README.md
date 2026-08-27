@@ -1,5 +1,17 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+2026/08/26
+I went to a city office to register my adress here. Also, I opened a bank account here. I am being addicted to a screen recently. Build my own life. But a good thing is that I can have good communication here. Feel more confident.
+
+2026/08/25
+I had an interview for a scholarship. No sense of making headway. After that, I went to the Haag to submit my biometric information. The train fee to go there was expensive. 
+
+### 2026/08/24
+Preparation for the interview of a scholarship.
+
+### 2026/08/23
+Preparation for the interview of a scholarship.
+
 ### 2026/08/22
 I went to a library to prepare the interview for a scholarship. The design of the library is kind of unique. Its defining feature is the large sloping grass roof. The campus lawn rises gradually from the ground and continues over the library, so you can walk, sit, or study on top of the building.
 
