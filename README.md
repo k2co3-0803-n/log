@@ -1,9 +1,18 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
-2026/08/26
+### 2026/08/28
+First day for my MSc program here. The first day was in the Leiden University. Abert Einstein used to work in this university as a professor. Study workload here seems to be very tough, which is I had been pursued though... Should be ready.
+
+### 2026/08/27
+- My bike was stolen. I only used it for 5 days. It cost 200 euro. This is the Netherlands. Bicycles are just like umbrellas in Japan. But the scale of the prices are different too much...
+- Wrote documents for the Rotary Club's scholarship.
+- Grabbed a beer with a PhD student who I met in Okinawa, and we happend to study in TU Delft. His research is also quantum things.
+- Found a good place to do pull-up.
+
+### 2026/08/26
 I went to a city office to register my adress here. Also, I opened a bank account here. I am being addicted to a screen recently. Build my own life. But a good thing is that I can have good communication here. Feel more confident.
 
-2026/08/25
+### 2026/08/25
 I had an interview for a scholarship. No sense of making headway. After that, I went to the Haag to submit my biometric information. The train fee to go there was expensive. 
 
 ### 2026/08/24
