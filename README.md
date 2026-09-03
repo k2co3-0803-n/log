@@ -1,5 +1,8 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/09/02
+Thought about a business plan. Almost all the business models are the copies of exsiting ones. I will do web production business by myself.
+
 ### 2026/09/01
 I got rejected by Shigeta Kyoiku Zaidan Scholarship though I passed to the second interview. This was actually much painful but I'm on fire now. I need to create money wity my power and survive here. Not rely on scholarships. This is true if you become rich and successful, sooner or later you need to cultivate your ability to generate money with your brain. I'll take this struggle as the best opportunity to be independent of others. Cultivate myself. A good step to make $60M. Now deficiency makes my motivation.
 
