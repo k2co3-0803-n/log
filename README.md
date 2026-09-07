@@ -1,5 +1,21 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/09/07
+
+
+### 2026/09/06
+Attended オランダ三田会 at Amsterdam. Also, sightseeing at Amsterdam by myself after the 三田会.
+I entered & enjoyed Red Light Room as an experience.
+
+### 2026/09/05
+Cleaned up my room & Did laundry for the first time since I came to the Netherlands.
+
+### 2026/09/04
+Calisthenics with Helen at night. Also, walked into a campfire event at the X building.
+
+### 2026/09/03
+Prepare documents for Recruit Scholarship.
+
 ### 2026/09/02
 Thought about a business plan. Almost all the business models are the copies of exsiting ones. I will do web production business by myself.
 
