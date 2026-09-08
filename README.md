@@ -1,6 +1,10 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/09/08
+I woke up at 5:30 today and wrote a document for a scholarship. I realized again how good it was to wake up early. I felt an ultimate sense of superiority just because of waking up early. I strongly learned & kept this remuneration in my mind. I determined to create this habit again.
+
 ### 2026/09/07
+I had 3 classes today. It took 6 hours as a total. So exhasted. These classes are mostly reviews of Electrical Engineering, Information Theory, and Computer Science. But still, I forgot almost everything about it. Hence, a lot of workload is needed to catch up.
 
 
 ### 2026/09/06
