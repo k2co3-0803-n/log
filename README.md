@@ -10,12 +10,13 @@ Prepared for a electrical engineering exam. Had a class on how to build a team. 
 
 Just for information, I'm in the Quarter 1 on the academic calendar. I have 5 fundamental classes and 1 group project.
 
-Fundamental classes (Homologation for QIST) consists of 
+Fundamental classes called "Homologation for QIST" consists of 
 - Information Theory for QIST
 - Computer Science for QIST
 - Mathematics for Quantum Physics
 - Introduction for Quantum Physics
 - Electronics and Computer Engineering for QIST
+※QIST = Quantum Information Science & Technology, the name of our MSc program
 
 In the group project called "Orientation Team Project",
 - Our team aims to confirm CHSH inequality to prove Bell's Theorem with optics. In short, we are trying to confirm quantum entanglements of single photon polarizations. Our team's members are 2 Dutch, 2 Romanian, 1 German, and 1 Japanese. All of them are men, that's disgusting 😮‍💨. But we're enjoyiing experiments. It's very exciting to learn & quantum mechanics with my hands.
