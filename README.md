@@ -1,5 +1,32 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/09/12
+
+### 2026/09/11
+Team proect at Leiden University. Went to a uni's library at night from 10pm - 12pm to do several chores which I left as it was due to my laziness. Now cleaned up almost everything.
+
+### 2026/09/10
+Prepared for a electrical engineering exam. Had a class on how to build a team. Discuss each personalities in group for example. 
+
+Just for information, I'm in the Quarter 1 on the academic calendar. I have 5 fundamental classes and 1 group project.
+
+Fundamental classes (Homologation for QIST) consists of 
+- Information Theory for QIST
+- Computer Science for QIST
+- Mathematics for Quantum Physics
+- Introduction for Quantum Physics
+- Electronics and Computer Engineering for QIST
+
+In the group project called "Orientation Team Project",
+- Our team aims to confirm CHSH inequality to prove Bell's Theorem with optics. In short, we are trying to confirm quantum entanglements of single photon polarizations. Our team's members are 2 Dutch, 2 Romanian, 1 German, and 1 Japanese. All of them are men, that's disgusting 😮‍💨 thought. But we're enjoyiing experiments. It's very exciting to learn & quantum mechanics with my hands.
+
+<img width="3024" height="4032" alt="chsh-experiment" src="https://github.com/user-attachments/assets/4dd21bb8-eb36-4119-9989-1de3d160f693" />
+
+At night, I had dinner with Taiwanese community. That was a nice night.
+
+### 2026/09/09
+Prepared for a mathematics exam. Solved a mock exam. 
+
 ### 2026/09/08
 I woke up at 5:30 today and wrote a document for a scholarship. I realized again how good it was to wake up early. I felt an ultimate sense of superiority just because of waking up early. I strongly learned & kept this remuneration in my mind. I determined to create this habit again.
 
