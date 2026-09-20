@@ -1,6 +1,31 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/09/20
+
+
+### 2026/09/19
+I went to Utrecht to get my residence permit card, and by this almost all of procedures I had to do to live in the Netherlands was done. I played too much this week. Lock in mode from now.
+
+### 2026/09/18
+We started the michelson interference experiment with single photons. Aligning the optical devices in this experiment was so tough. We couldn't produce any progress today. In the evening, we went to hear the [lecture](https://www.universiteitleiden.nl/agenda/2026/08/speciaal-van-der-waals-colloquium-met-chris-ferrie) by a professor from the Sydney University. He is known for his picture books for children. After that, I went to a networking event. I talked with several PhD students at Leiden University. One of them taught me "Scanning Electron Microscope”, but I couldn't understand. Sorry to be pretending to understand.
+
+### 2026/09/17
+Went to the carnival in front of a church. The festival was temporarily held in front of the church. I was kind of impressed that it is permitted to build an amusement park in front of the sacred church even though it is temporal. I rode on a flying chair with a friend. I was almost die. But when I saw the scenary of Delft at the sight, I finally and confirmly sensed that I am in the Netherlands.
+
+### 2026/09/16
+There was a first meeting of XPLANE's SoP support. At night, I went to a theater to watch the movie called "AKIRA." I hadn't known the movie before, but according to the information I found on the Internet, it is one of the most influential Japanese animation movie in the world. The content itself was so complex, weird, and gory. I am still processing its meaning.
+
+### 2026/09/15
+Finished the Grangier-Roger-Aspect (GRA) experiment to confirm that single photons are really single photons or not.
+
+### 2026/09/14
+Got a permission of registering my room as a business office.
+
+### 2026/09/13
+Cooked omurice with several friends at my house.
+
 ### 2026/09/12
+Get my own domain name.
 
 ### 2026/09/11
 Team proect at Leiden University. Went to a uni's library at night from 10pm - 12pm to do several chores which I left as it was due to my laziness. Now cleaned up almost everything.
