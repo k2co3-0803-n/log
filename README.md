@@ -1,5 +1,66 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/10/10
+I wrote this log for the first time in 20 days. I finally catched up this logging. From now on, I want to write everyday. And I noticed that my content are such simple sentences. I try my best to elaborate them from now.
+
+
+### 2026/10/9
+We applied to a quantum related hackathon held in Munich in November. Let's gooo. At night, we organized a home party with friends. It was a nice moment to know each other.
+
+### 2026/10/8
+Worked on Electrical Engineering and Computer Engineering with friends. We played a soccer arcade game during a break. It was fun and exiting more than I expected.
+
+### 2026/10/7
+Finally finished to submit an application for JASSO Scholarship. It was my second time but the procedures were so hassle again.
+
+### 2026/10/6
+Today, since we finally finished the Michelson Interference experiment last time, we moved on to the Quantum Eraser experiment and it's done. When going home, we went back to Delft from Leiden by car. It was my first moment I rode on a car in the Netherlands. It was of course left handle. 
+
+### 2026/10/5
+I joined a workshop on vizualizing one's inner world. In this workshop, we expressed our inner world with distributed cards. After showing a catd which illustrates one's mind, each person explained why they chose it. Talking my inner world to others was a bit embarassing experiences, but participants were so nice, and I felt accepted by them and could freely expressed myself.
+
+### 2026/10/4
+Cleaned up our room. My mind felt refreshed. At noon, I joined Indian lunch party held by my Indian room mate. She cooked ramen for us, and I was asked to judge the taste of it. It was delicious indeed. At night, I ran with a new friend I met at the party. It was a perfect weather condition for running.
+
+### 2026/10/3
+Wrote an excerpt of my bachelor thesis for JASSO Scholarshipl. I looked on my bachelor research for the first time in a while.
+
+### 2026/10/2
+Since today was the birthday of Prof. Kobayashi, I sent a birthday message with my updates. It was really a good time to organize my thoughs. Happy birthday to Prof. Kobayashi again.
+
+### 2026/10/1
+Worked on the information theory and computer science all day.
+
+### 2026/09/30
+In the Netherlands, people can get a house allowance if your house meets some conditions. But my room did not meet conditions. Will earn more money.
+
+### 2026/09/29
+I met a Dutch guy on my way to home from a gym. He taught me a lot of practical matters to survive in the Netherlands. Gratitude.
+
+### 2026/09/28
+I talked with my neighbor in the morning. He is running his own business on 3D modeling software. I've found a respectful person here.
+
+### 2026/09/27
+I performed well in doing a calisthenic today. Also, finally the paper registration for a freelancer in the Netherlands completed. (Still, I have to meet and talk a governmental office in person.)
+
+### 2026/09/26
+There was a first meeting of XPLANE's SoP support for another person. In the afternoon, I chatted with Naoki Taguchi in online. He was doing extremely good. He'll enter the University of Science Tokyo for his graduate study.
+
+### 2026/09/25
+I joined the Moon Festival held by Taiwanese Community. I failed to impress a girl who I was approaching for past 1 month. My first broken heart since I came here.
+
+### 2026/09/24
+I went to a pizza party held by AASP (Association for Students of Applied Physics). 
+
+### 2026/09/23
+I explored Delft with Viola.
+
+### 2026/09/22
+We found that the alignment for Michelson intrference experiment was so difficult. Nex time.
+
+### 2026/09/21
+I tried to solve the Schrödinger equation of the three dimensinal hydrogen atom.
+
 ### 2026/09/20
 
 
