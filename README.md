@@ -1,5 +1,11 @@
 # log (50〜60年後の楽しみ with Shimizu) 
 
+### 2026/11/10
+A month has passed since I updated last time. Time goes fast.
+I'll share a video which I sent to the group chat of my class during an exam period. > Yuki Shimizu
+
+https://github.com/user-attachments/assets/47c13601-69b6-4223-b3ff-3177f34df44e
+
 ### 2026/10/10
 I wrote this log for the first time in 20 days. I finally catched up this logging. From now on, I want to write everyday. And I noticed that my content are such simple sentences. I try my best to elaborate them from now. At night, I packed my belongings to move to a temporary house since our house will get renovated for next two weeks. In a temporary house, we will meet new flatmates from Costa Rica, Poland, and Russia. It's international indeed. I did yoga streatch before sleep. See you tomorrow.
 
